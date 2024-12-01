@@ -1,5 +1,5 @@
 # music score for nobel prize committee by andrea
-the Music Score for Nobel Prize Committee by me 🎶
+the Music Score for Nobel Prize Committee by me ♫
 
 Inspired by Eurovision 
 
