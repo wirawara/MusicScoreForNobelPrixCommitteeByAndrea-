@@ -1,4 +1,4 @@
-# music_score_for_nobel_prize_committee_by_andrea
+# music score for nobel prize committee by andrea
 the Music Score for Nobel Prize Committee by me
 
 
