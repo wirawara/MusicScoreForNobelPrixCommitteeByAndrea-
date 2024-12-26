@@ -4,4 +4,4 @@ the Music Score for Nobel Prize Committee by me ♫
 Inspired by Eurovision 
 
 
-![Alt-text](https://res.cloudinary.com/duse2sckn/image/upload/v1734345843/New_Note_lyc1uo.jpg)
+![Alt-text](https://asset.cloudinary.com/duse2sckn/d8cfa4a7547f37b574ada402fc0b26b5)
