@@ -9,4 +9,4 @@ Inspired by Eurovision
 
 
 ![beethovengif_xmas2024_andreak](https://github.com/user-attachments/assets/434fa6ab-751b-4286-a80a-7b50daa28d83)
-![andreak_atthepiano](https://github.com/user-attachments/assets/06301904-a6bc-4f79-be67-59fba64e1d2d)
+
