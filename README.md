@@ -3,6 +3,8 @@ the Music Score for Nobel Prize Committee by me ♫
 
 Inspired by Eurovision 
 
+https://www.linkedin.com/posts/andrea-komljenovic_barbieandreaplayingapiano-mebarbie-pianoroom-activity-7284164169438797824-ECEj?utm_source=share&utm_medium=member_desktop
+
 
 ![Alt-text](https://res.cloudinary.com/duse2sckn/image/upload/v1735236161/nobelprix_music_score_by_me_o3ya40.jpg)
 
