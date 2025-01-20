@@ -3,6 +3,8 @@ the Music Score for Nobel Prize Committee by me ♫
 
 Inspired by Eurovision 
 
+
+The link where I am playing classical music on the white piano is here - Beethoven's Sonata no. 8 "Pathétique", 3rd movement - Rondo (Op. 13) by me! :):
 https://www.linkedin.com/posts/andrea-komljenovic_barbieandreaplayingapiano-mebarbie-pianoroom-activity-7284164169438797824-ECEj?utm_source=share&utm_medium=member_desktop
 
 
